@@ -55,7 +55,7 @@ I'm an **Electronics & Computer Science engineering student** at Vidyalankar Ins
 
 ## Beyond Code
 
-Away from the keyboard, I'm learning in public: picking up cloud and ML fundamentals alongside coursework, and looking for problems where automation actually saves someone time.
+From styling outfits and exploring new flavors to embracing spirituality and mindful living, I find happiness in the things that let me express myself, stay grounded, and enjoy life beyond the digital world.
 
 ## Let's Connect
 
