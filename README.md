@@ -60,6 +60,6 @@ Away from the keyboard, I'm learning in public: picking up cloud and ML fundamen
 ## Let's Connect
 
 Open to internships, collaborations, and conversations about AI, cloud, and accessibility.
-**akshata.nalawade@vit.edu.in** · [GitHub](https://github.com/nalawadeakshata29) · [LinkedIn](#)
+**nalawadeakshata00@gmail.com** · [GitHub](https://github.com/nalawadeakshata29) · [LinkedIn](#)
 
 <img src="assets/footer.svg" alt="Good things brew slowly. Keep stirring." width="100%"/>
